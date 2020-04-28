@@ -1,1 +1,1 @@
-![alt text](https://ibb.co/WV4748y)
+![alt text](https://i.ibb.co/MBxKxwV/contador-De-Pessoas.jpg)
